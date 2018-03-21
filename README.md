@@ -1,3 +1,0 @@
-# hello-world
-
-I Don,t know y I did this,but I did,so....
